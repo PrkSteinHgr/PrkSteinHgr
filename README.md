@@ -1,4 +1,4 @@
-### Hi, I'm Higor! 👩‍💻
+### Hi, I'm Higor!
 
 - I'm 16 years old
 <div align="center">
